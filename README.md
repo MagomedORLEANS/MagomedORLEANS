@@ -1,1 +1,1 @@
-![GIF](https://tenor.com/view/touhou-flandre-flandre-dancing-mcdonald-dancing-flandre-mirror-dancing-gif-7859445729905602937)
+<div class="tenor-gif-embed" data-postid="7859445729905602937" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/touhou-flandre-flandre-dancing-mcdonald-dancing-flandre-mirror-dancing-gif-7859445729905602937">Touhou Flandre GIF</a>from <a href="https://tenor.com/search/touhou-gifs">Touhou GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
