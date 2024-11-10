@@ -1,1 +1,1 @@
-![GIF](https://i.redd.it/ht1eq43w4c071.gif)
+![GIF](https://tenor.com/view/touhou-flandre-flandre-dancing-mcdonald-dancing-flandre-mirror-dancing-gif-7859445729905602937)
